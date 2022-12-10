@@ -7,6 +7,7 @@ Bio
 ---
 
 Mitt navn er Anders Pippi Tednes, og jeg har fødsels- og personumner: 16118736501.
+Jeg er en pensjonert oversover av både opprinnelse og blod, og nyselvutnevnt leder av anarkistenes kokeboks velforeningsvesen.
 
 Dette bør i utgangspunktet gi i hel rekke rettigheter. Gjerne omtalt som menneskerettigheter. Jeg er drittlei av å nektes slike. Så sorry folkens. Du kan hate eller elske meg, men jeg bryter ingen verdens lover ved å publisere erfaringene mine offentlig. Og som anarkist kan det alltids tenkes jeg vil tviholde på retten til å gi litt faen.
 
